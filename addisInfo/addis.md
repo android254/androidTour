@@ -11,17 +11,30 @@ Addis is the capital of Ethiopia.
 the follow rules and you will see policemen al around.
 the official language is amharic so dont expect to speak english and be understood everywhere. That being said, we have english speakers. 
 
-Bole is like the central place.
+Bole is like the central place...like the westlands of nairobi. :)
 
-They ahev an active nightlife.
+They have an active nightlife.
 
 
-### The Tour
+### The Tour Info
 
+**AIR TICKET:** Ksh. 19700
+
+**ACCOMMODATION:**  Anything from USD 25
+
+**Other costs like fare and food:** 
+
+**Entertainment:** this is really up to you :) 
+
+**IMPORTANT**
+ - Currency used in Ethiopia is the Ethiopian Bir. 1 Ethiopian Bir=4Ksh.
+You can't change Ksh to Bir in Ethiopia and it would be great to have dollars from Kenya/ Bir form kenya.
+
+- Contact person for this trip is Priest or ./root get him on Telegram or WhatsApp.
 
 
 ### Tour Schedule
-
+9th February 2019 Android Workshop day
 
 
 
